@@ -1,2 +1,3 @@
 # -Most-popular-social-media-site-
 Break2ru is a channel of communication and an online social media  network for you. Break2ru's mission is to use the power of technology to support the less privilege, educate the younger generation and our hallmark is in building, searching, putting together new Face of the future.
+Break2ru Social Media network provides users with the opportunity to free their mind, Share Photos/videos, memorable celebrations, communicating with friends and family, BreakAid news which focuses  on how celebrities Non Profit Organizations are helping the poor and needy . A platform that helps you build  your brand and exhibit  your talent to the world.  
